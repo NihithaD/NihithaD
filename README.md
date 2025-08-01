@@ -1,4 +1,4 @@
-# Hi, I'm Bharathi 👋
+# Hi, I'm Nihitha 👋
 
 🎯 Passionate Web Developer | Aspiring Software Engineer (SDE)
 
